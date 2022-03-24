@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sunyoungKang
-- 👀 I’m interested in poet
+- 👀 I’m interested in poem
 - 🌱 I’m currently learning about the social worker
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me playing the game 'wow"
